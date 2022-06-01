@@ -4,7 +4,7 @@
 <br>
 <br>
 
-<p><img align="center" src="https://i.gifer.com/origin/bc/bca56ffe4a6e2910237482982aa856fe.gif" alt="adam-pw" /></p>
+<p align="center"><img align="center" src="https://i.gifer.com/origin/bc/bca56ffe4a6e2910237482982aa856fe.gif" alt="adam-pw" /></p>
 <br>
 <br>
 
